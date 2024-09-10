@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tony00269
 - 👀 I’m interested in game's,anime,riding.
 - 🌱 I’m currently learning B.com(C.S).
-- 💞️ I’m looking to collaborate on LOVE,💕
+- 💞️ I’m looking to collaborate on LOVE💕
 - 📫 How to reach IG:AX_TONY_002
 - 😄 Pronouns: Nick/her
 - ⚡ Fun fact: you are a gay
